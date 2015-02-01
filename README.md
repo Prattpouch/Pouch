@@ -1,0 +1,1 @@
+The Pratt Pouch is a folilized polyethylene pouch that have been used to extend the life of ARVs, such that mothers can be given the pouch in the second trimester to later squeeze the drug into the baby's mouth immediately after delivery at home.
